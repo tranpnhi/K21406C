@@ -1,1 +1,1 @@
-mượn code của trợ giảng
+mượn code của thầy
